@@ -32,19 +32,13 @@ Free vector from Freepik.com
  -[Whale](https://www.worldwildlife.org/stories/whales-and-the-plastics-problem/)
  -[Octopus](https://www.forbesindia.com/article/lifes/octopuses-are-taking-refuge-in-plastic-waste/74399/1)
  -[Stingray](https://www.express.co.uk/news/nature/731351/Giant-stingray-found-Cambodia-Mae-Klong-polluted-river-poachers-fishermen/)
- 
  -[Dolphin](https://savedolphins.eii.org/news/dangers-to-whales-and-dolphins-from-plastic-pollution-in-the-ocean1/)
- -[Turtle]
-  (https://www.worldwildlife.org/stories/what-do-sea-turtles-eat-unfortunately-plastic-bags#:~:text=Sharp%20plastics%20can%20rupture%20internal,lead%20to%20slow%20reproduction%20rates.
+ -[Turtle](https://www.worldwildlife.org/stories/what-do-sea-turtles-eat-unfortunately-plastic-bags#:~:text=Sharp%20plastics%20can%20rupture%20internal,lead%20to%20slow%20reproduction%20rates.)
  -[Seahorse](https://www.4ocean.com/blogs/blog/small-but-mighty-seahorses)
-
  -[JellyFish](https://hakaimagazine.com/news/in-the-future-jellyfish-slime-may-be-the-solution-to-microplastic-pollution/)
- -[Shark]
-    (https://www.greenpeace.org/usa/news/research-shows-that-67-of-sharks-are-contaminated-with-plastic/#:~:text=Research%20shows%20that%2067%25%20of%20sharks%20are%20contaminated%20with%20plastic,-by%20Perry%20Wheeler&text=London%2C%20UK%20%E2%80%93%20A%20study%20from,fiber%20in%20their%20digestive%20system)
-
+ -[Shark](https://www.greenpeace.org/usa/news/research-shows-that-67-of-sharks-are-contaminated-with-plastic/#:~:text=Research%20shows%20that%2067%25%20of%20sharks%20are%20contaminated%20with%20plastic,-by%20Perry%20Wheeler&text=London%2C%20UK%20%E2%80%93%20A%20study%20from,fiber%20in%20their%20digestive%20system)
  -[ClownFish](https://earth.org/clownfish-unable-to-adapt-to-the-climate-crisis-scientists-say/)
- -[Crab]
-    (https://www.bbc.com/news/uk-england-humber-58160697#:~:text=A%20University%20of%20Hull%20study,by%20food%20sources%20during%20decomposition)
+ -[Crab](https://www.bbc.com/news/uk-england-humber-58160697#:~:text=A%20University%20of%20Hull%20study,by%20food%20sources%20during%20decomposition)
  
  -[PufferFish](http://pufferfishfacts.weebly.com/dangers.html)
  
