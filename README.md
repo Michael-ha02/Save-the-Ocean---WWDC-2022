@@ -39,7 +39,6 @@ Free vector from Freepik.com
  -[Shark](https://www.greenpeace.org/usa/news/research-shows-that-67-of-sharks-are-contaminated-with-plastic/#:~:text=Research%20shows%20that%2067%25%20of%20sharks%20are%20contaminated%20with%20plastic,-by%20Perry%20Wheeler&text=London%2C%20UK%20%E2%80%93%20A%20study%20from,fiber%20in%20their%20digestive%20system)
  -[ClownFish](https://earth.org/clownfish-unable-to-adapt-to-the-climate-crisis-scientists-say/)
  -[Crab](https://www.bbc.com/news/uk-england-humber-58160697#:~:text=A%20University%20of%20Hull%20study,by%20food%20sources%20during%20decomposition)
- 
  -[PufferFish](http://pufferfishfacts.weebly.com/dangers.html)
  
  ## Image Source:
